@@ -1,3 +1,3 @@
 Hello Everyone!
 
-I am Ramidi Sridhar Reddy , pursuing undergraduation in computer science @ Mahindra University.
+I am Sridhar Reddy Ramidi , pursuing Masters in computer and Information sciences @ University Of Colorado Denver.
